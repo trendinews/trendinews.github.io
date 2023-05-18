@@ -1,1 +1,0 @@
-# trendinews.github.io
